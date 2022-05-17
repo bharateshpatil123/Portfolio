@@ -1,1 +1,1 @@
-https://bharateshpatil123.github.io/Portfolio/
+https://bharateshpatil123.github.io/portfolio/
